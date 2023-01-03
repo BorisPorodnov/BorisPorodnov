@@ -1,6 +1,6 @@
 ![alt text](https://bestprogrammer.ru/wp-content/uploads/2022/03/7-navykov-chtoby-stat-backend-razrabotchikom-696x400.jpg)
 
-    About me
+About me
    - Work experience 1,6 years
    - Worked in [Central Bank Russian Federation](https://www.cbr.ru/)
    - Worked in [TOMSK PETROLEUM INSTITUTE](https://www.tomskneft.ru/)
