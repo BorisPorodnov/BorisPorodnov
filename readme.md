@@ -1,5 +1,6 @@
-#🙂🙂
 
+# 🖐️🙂🙂   
+  
 About me
    - Work experience 1,6 years
    - Worked in [Central Bank Russian Federation](https://www.cbr.ru/)
