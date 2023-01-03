@@ -1,4 +1,4 @@
-![alt text](https://bestprogrammer.ru/wp-content/uploads/2022/03/7-navykov-chtoby-stat-backend-razrabotchikom-696x400.jpg)
+![alt text](https://www.shutterstock.com/shutterstock/photos/1125377903/display_1500/stock-vector-human-evolution-from-monkey-to-businessman-and-computer-user-cartoon-vector-characters-evolution-1125377903.jpg)
 
 About me
    - Work experience 1,6 years
