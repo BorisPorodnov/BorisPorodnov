@@ -3,7 +3,7 @@
   
   
   About me
-  - Work experience 2.5 years
+  - Work experience 3 year
   - Work in [TOMSK Contek-Soft](http://www.contek.ru) Until now
   - Worked in [Central Bank Russian Federation](https://www.cbr.ru/)
   - Worked in [TOMSK PETROLEUM INSTITUTE](https://www.tomskneft.ru)
